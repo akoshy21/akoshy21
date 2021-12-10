@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Annamaria Koshy
+- 👀 I’m interested in game design, game development, or web development work.
